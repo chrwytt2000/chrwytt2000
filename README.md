@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Cheryl Wyatt
 - 👀 I’m interested in finding a job
-- -/🌱 I’m currently learning ...
-- -/💞️ I’m looking to collaborate on ...
+
+
 - 📫 How to reach me chrwytt2000@yahoo.com 
 
 <!---
