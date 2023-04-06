@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Cheryl Wyatt
-- 👀 I’m interested in finding a job
+- 🐕‍🦺 I love my German Shepard Dog
 
 
 - 📫 How to reach me chrwytt2000@yahoo.com 
